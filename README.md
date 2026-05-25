@@ -1,5 +1,5 @@
 
 
-- 🌱 data science student!
-- 📫 Mail: kavya.anil@bds.christuniversity.in | anilkavya266@gmail.com
+- 🌱 data science enthusiast!
+- 📫 Mail: anilkavya266@gmail.com
 
